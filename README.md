@@ -8,7 +8,7 @@ My name is Rich and I am currently using digital technology to help create Smile
 
 - Pronouns: He / Him
 
-- Feel free to give me a follow on Twitter [@IamCHiriboga](https://twitter.com/iamchiriboga)
+- Feel free to give me a follow on Twitter [@IamChiriboga](https://twitter.com/iamchiriboga)
 
 
 
